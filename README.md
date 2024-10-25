@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Amanda Mello
+- 👀 I’m interested in acquire knowledge in the IT area.
+- 🌱 I’m currently learning the entire IT universe.
+- 💞️ I’m looking to collaborate on something I can acquire new abilities.
+- 📫 How to reach me on amanda_mello15@hotmail.com
+- ⚡ Fun fact: Studying Multiplatform Software Development at Fatec Marília SP.
